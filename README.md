@@ -1,4 +1,6 @@
 - 👋 Hi, I’m @fathimanaaz
 - I’m interested in coding...
 - 🌱 I’m currently learning coding on whitehat jr...
-And if u subscribe i will subscribe you back "YOU SHOULD DO IS JUST SUBSCRIBE AND COMMENT THAT YOU HAVE SUBSCRIBED" This is the link (https://www.youtube.com/channel/UCPbZKQ146beOGysGQszqpvw)
+
+
+And this is my youtube channel if u subscribe i will subscribe you back "YOU SHOULD DO IS JUST SUBSCRIBE AND COMMENT THAT YOU HAVE SUBSCRIBED" This is the link (https://www.youtube.com/channel/UCPbZKQ146beOGysGQszqpvw)
